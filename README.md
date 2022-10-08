@@ -4,3 +4,5 @@
 My name is Haiden Keith C. Cipriano
 
 Currently Studying in Lyceum of The Philippines University Manila 
+
+Personal Information/ Birthdate: December 22,2003
