@@ -11,3 +11,19 @@ I am a passionate and team-oriented worker, especially when it comes to esports 
 and understanding of people, and I like to have fun with mates outside of the workplace.
 I am an esports and gaming media personality being the writer, host, and production manager of my own esports and
 gaming blog, HypeGamesPH.
+
+Experience
+Production Manager, Writer, Host
+HypeGamesPH • San Jose Del Monte, REGION 3 (CENTRAL LUZON)
+04/2022 - Present
+I host and interview and create content for HypeGamesPH
+I write articles for HYpeGamesPH
+
+Skills
+Hosting, Writing
+
+Education
+Bachelor of Science in Esports
+Lyceum of the Philippines University Manila • San Jose Del Monte, REGION 3 (CENTRAL LUZON)
+I am currently a first-year student in college.
+I graduated both junior high school and senior high school with honors
