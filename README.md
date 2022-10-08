@@ -27,3 +27,5 @@ Bachelor of Science in Esports
 Lyceum of the Philippines University Manila • San Jose Del Monte, REGION 3 (CENTRAL LUZON)
 I am currently a first-year student in college.
 I graduated both junior high school and senior high school with honors
+
+My Porfolio
